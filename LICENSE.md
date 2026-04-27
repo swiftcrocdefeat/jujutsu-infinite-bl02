@@ -1,4 +1,4 @@
-
+stealth catch and tame Script offers the most advanced catch and tame Script, with silent aim and auto-upgrade. Perfect for dominating any match.
 
 
 
